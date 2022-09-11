@@ -5,3 +5,4 @@
 | @Kenshino | @Kenshino | #1 |
 | @muhammadfaizanhaidar | @MuhammadFaizanHaidar | #26 |
 | @krupalpanchal | @krupal-panchal | #353 |
+| @maddyosman | @theblogsmith | #267 |
